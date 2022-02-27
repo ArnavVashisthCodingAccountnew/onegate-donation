@@ -5,4 +5,6 @@ Users can donate various categories of things by clicking the images. They are t
 
 # Note: Nobody has the right to copy the source code of this repository. Appropriate action will be taken against The person who does so.
 
-We stand in solidarity with ukraine #RUSSIAINVADESUKRAINE
+
+We urge both sides(ukraine and russia) to stop the war and conflict escalation. We also want the restoration of peace & sovereignty in both sides.
+We in India stand in solidarity with both sides. 
